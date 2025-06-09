@@ -1,1 +1,0 @@
-# Nazzytech.github.io
